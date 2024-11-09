@@ -1,11 +1,11 @@
-# TRANSFERABLE USDT FLASH SOFTWARE | UsdtFlash.cc
+# TRANSFERABLE USDT FLASH SOFTWARE | usdtflash.shop
 </br>
  
 __Tool is Working Stable With Fastest Transcations on The Flash USDT Market. USDT Flashing Has Never Been This Simple and Fast.</br> 
 Our Flash USDT Tool Provide Basic and Minimal Interface with Powerful Limitations.</br>
-#1 USDT Flash Software from https://usdtflash.cc for Your Deals.__
+#1 USDT Flash Software from https://usdtflash.shop for Your Deals.__
 
-<a href="https://usdtflash.cc/#features">
+<a href="https://usdtflash.shop/#features">
 <img src="https://i.ibb.co/myNL0hJ/Z2.png" alt="usdt flash software">
 </a>
 
@@ -17,11 +17,11 @@ Harnessing cutting-edge technology, it maximizes efficiency and minimizes transa
 Flash USDTs are transferable and withdrawable. 365 Days valid flash usdts. It can make multiple "jumps", that is, it can be sent from the transferred account to another account without any restrictions.
 </br></br>
 **_🔑 GET ACCESS INSTANTLY_**\
-**🛒For Access Key:** https://usdtflash.cc/ \
-**👤For Important Cases & Contact:** contact@usdtflash.cc
+**🛒For Access Key:** https://usdtflash.shop/ \
+**👤For Important Cases & Contact:** contact@usdtflash.shop
 <br>
 <br>
-<a href="https://usdtflash.cc/#plans">
+<a href="https://usdtflash.shop/#plans">
 <img src="https://i.ibb.co/FDGbJfY/usdtflasherplans.png" alt="usdtflashplans">
 </a>
 
