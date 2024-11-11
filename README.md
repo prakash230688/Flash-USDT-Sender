@@ -3,7 +3,7 @@
  
 __Tool is Working Stable With Fastest Transcations on The Flash USDT Market. USDT Flashing Has Never Been This Simple and Fast.</br> 
 Our Flash USDT Tool Provide Basic and Minimal Interface with Powerful Limitations.</br>
-#1 USDT Flash Software from https://usdtflash.shop for Your Deals.__
+#1 USDT Flash Software from https://usdtflash.cc for Your Deals.__
 
 <a href="https://usdtflash.cc/#features">
 <img src="https://i.ibb.co/myNL0hJ/Z2.png" alt="usdt flash software">
