@@ -21,7 +21,7 @@ Flash USDTs are transferable and withdrawable. 365 Days valid flash usdts. It ca
 **👤For Important Cases & Contact:** contact@flashersoftware.pro
 <br>
 <br>
-<a href="https://deanjs.sell.app/#plans">
+<a href="https://johnrq.sell.app/#plans">
 <img src="https://i.ibb.co/FDGbJfY/usdtflasherplans.png" alt="usdtflashplans">
 </a>
 
